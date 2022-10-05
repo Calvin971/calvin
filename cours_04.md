@@ -4,7 +4,7 @@ Choisissez des emplois qui pourraient vous intéresser.
 
 ### Emploi 1 - Identification
 Écrire 4 à 5 lignes. Parler des tâches reliées à l'emploi. Expliquer où ces personnes travaillent. Décrire les qualités requises pour pratiquer ce métier. Un point qui vous intéresse dans ce métier. Un point qui rend ce métier moins intéressant pour vous.  
-
+Animateur 2d. Faire preuve de créativité mais aussi savoire fair les taches demander. Metre en place les projets et faire les design de base.
 ### Emploi 2 - Identification
 4 à 5 lignes
 
